@@ -1,4 +1,4 @@
 # Norbert Akonsi
 About me
 My Resume
-View and download  https://norbert.norbtec.com
+View and download  https://norbert.norbtec.net
